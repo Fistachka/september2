@@ -41,3 +41,5 @@ Den', kogda goryat kostry ryabin
 Kak kostry, goryat obeshchaniya
 V den', kogda ya sovsem odin<br><br>
 
+![3 september](https://github.com/user-attachments/assets/466cf62e-248d-4dbf-a9b2-e5d5bc5e3ccb)
+![3 september](https://github.com/user-attachments/assets/2e5e4ec8-5d1f-4c77-96f4-25291cf3b2b6)
