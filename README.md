@@ -14,7 +14,8 @@
 Ведь было всё у нас всерьёз второго сентября
 Но почему, но почему расстаться всё же нам пришлось?
 Ведь было всё у нас всерьёз второго сентября
-<br><br>
+
+Предыдущий урок: stolbitsa.com/fistachka/september<br><br>
 
 <span id="en"><a href='#ru'>🇷🇺</a> &nbsp;&nbsp;&nbsp;<a href='#en'>🇺🇸</a> &nbsp;&nbsp;&nbsp;</span><br><br>
 
@@ -29,5 +30,7 @@ Na foto ya tvoyo vzglyanu, i snova tret'e sentyabrya
 No pochemu, no pochemu rasstat'sya vsyo zhe nam prishlos'?
 Ved' bylo vsyo u nas vser'yoz vtorogo sentyabrya
 No pochemu, no pochemu rasstat'sya vsyo zhe nam prishlos'?
-Ved' bylo vsyo u nas vser'yoz vtorogo sentyabrya<br><br>
+Ved' bylo vsyo u nas vser'yoz vtorogo sentyabrya
+
+Previous lesson: stolbitsa.com/fistachka/september<br><br>
 
