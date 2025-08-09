@@ -1,7 +1,7 @@
 <span id="ru"><a href='#ru'>🇷🇺</a> &nbsp;&nbsp;&nbsp;<a href='#en'>🇺🇸</a> &nbsp;&nbsp;&nbsp;</span><br><br>
 
 Михаил Шуфутинский - "Третье сентября"
-2 куплет
+припев
 
 ![3 september](https://github.com/user-attachments/assets/466cf62e-248d-4dbf-a9b2-e5d5bc5e3ccb)
 
